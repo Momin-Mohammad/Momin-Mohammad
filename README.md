@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mohammadit177@gmail.com**
 
-- Connect with me - **[LinkedIn](linkedin.com/in/momin-mohammad-102304171)**
+- Connect with me - **[LinkedIn](https://linkedin.com/in/momin-mohammad-102304171)**
 
 <br/>
 
